@@ -27,6 +27,4 @@ Changes to Our Privacy Policy
 This privacy policy may change over time or be updated for what we recommend and we encourage you to continually review this page to ensure that you agree to such changes.
 
 Contact
-If you have any questions, comments or requests regarding this privacy policy or our processing of your information, please contact: [berger20170829@gmail.com
-
- ]
+If you have any questions, comments or requests regarding this privacy policy or our processing of your information, please contact: [berger20170829@gmail.com]
