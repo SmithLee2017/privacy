@@ -1,4 +1,4 @@
-                                               Privacy Policy of File Cleaner
+                                           Privacy Policy of File Cleaner
 
 File Cleaner is deeply committed to protecting the privacy of all our users. Therefore, we released this Privacy Policy and mean to clearly explain how we collect, use and manage the non-personal information and personal information collected by our services.
 By using or interacting with our product, you are agreeing to the terms of this Policy.
@@ -33,4 +33,4 @@ Changes to Our Privacy Policy
 This privacy policy may change over time or be updated for what we recommend and we encourage you to continually review this page to ensure that you agree to such changes.
 
 Contact
-If you have any questions, comments or requests regarding this privacy policy or our processing of your information, please contact: [aircleaner168@gmail.com ]
+If you have any questions, comments or requests regarding this privacy policy or our processing of your information, please contact: [berger20170829@gmail.com ]
