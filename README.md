@@ -1,11 +1,11 @@
-                                               Privacy Policy of Super Virus Cleaner
+                                           Privacy Policy of One Cleaner
 
-Super Virus Cleaner is deeply committed to protecting the privacy of all our users. Therefore, we released this Privacy Policy and mean to clearly explain how we collect, use and manage the non-personal information and personal information collected by our services.
+One Cleaner is deeply committed to protecting the privacy of all our users. Therefore, we released this Privacy Policy and mean to clearly explain how we collect, use and manage the non-personal information and personal information collected by our services.
 By using or interacting with our product, you are agreeing to the terms of this Policy.
 
 Collection Personal Information
-We do not collect Personal Information when you use Super Virus Cleaner. Personal Information is information that identifies you or another person, such as your first name and last name, physical addresses, email addresses, telephone, fax, SSN, information stored within your device.
-But you may be asked to provide your personal information anytime you are in contact with Super Virus Cleaner. You are not required to provide the personal information that we have requested, but, if you chose not to do so, in many cases we will not be able to provide you with our products or services or respond to any queries you may have.
+We do not collect Personal Information when you use One Cleaner. Personal Information is information that identifies you or another person, such as your first name and last name, physical addresses, email addresses, telephone, fax, SSN, information stored within your device.
+But you may be asked to provide your personal information anytime you are in contact with One Cleaner. You are not required to provide the personal information that we have requested, but, if you chose not to do so, in many cases we will not be able to provide you with our products or services or respond to any queries you may have.
 
 Collection Non-Personal Information
 
